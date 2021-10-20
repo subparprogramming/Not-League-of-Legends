@@ -1,1 +1,1 @@
-# Not-League-of-Legends
+# (Not) League of Legends
